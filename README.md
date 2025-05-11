@@ -2,7 +2,7 @@
 
 **Canva** is a **web-based graphic design platform** that allows users to **create visual content** such as social media graphics, presentations, posters, documents, and videos using an intuitive **drag-and-drop interface** and a wide variety of **customizable templates**.
 
-Canva continues to be a versatile and powerful design tool in 2025, balancing ease of use with advanced features. Its ongoing integration of AI tools like Magic Studio positions it as a forward-thinking platform catering to a wide range of users. While there are areas for improvement, particularly in performance with complex projects, Canva remains a top choice for individuals and teams seeking efficient design solutions.
+**Canva** continues to be a versatile and powerful design tool in 2025, balancing ease of use with advanced features. Its ongoing integration of AI tools like Magic Studio positions it as a forward-thinking platform catering to a wide range of users. While there are areas for improvement, particularly in performance with complex projects, Canva remains a top choice for individuals and teams seeking efficient design solutions.
 
 **Key Aspects of Canva:**
 
