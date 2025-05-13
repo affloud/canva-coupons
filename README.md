@@ -17,7 +17,7 @@
   <img src="https://drive.google.com/uc?export=view&id=1DakrHKN2C6SwIh4HpkQ_cf40vpuDUu0q"  alt="">
 </a>
 
-Canva continues to be a versatile and powerful design tool in 2025, balancing ease of use with advanced features. Its ongoing integration of AI tools like Magic Studio positions it as a forward-thinking platform catering to a wide range of users. 
+**Canva** continues to be a versatile and powerful design tool in 2025, balancing ease of use with advanced features. Its ongoing integration of AI tools like Magic Studio positions it as a forward-thinking platform catering to a wide range of users. 
 
 While there are areas for improvement, particularly in performance with complex projects, Canva remains a top choice for individuals and teams seeking efficient design solutions.
 
