@@ -41,7 +41,7 @@ While there are areas for improvement, particularly in performance with complex 
 <img src="https://drive.google.com/uc?export=view&id=1copskY16kdQsj1TlHODpmoNLyVieWffZ" alt="Take a Closer Look"> 
 </a>
 
-## Key features of Canva
+## Key features of Canva in 2025
 
 1. **Drag-and-Drop Editor**
 
@@ -156,7 +156,7 @@ Free for verified teachers and students, providing access to educational templat
 
 Eligible nonprofit organizations can apply for free access to Canva Pro features to aid in their missions. 
 
-## 💸 Current Coupon Codes
+## 💸 Canva Coupon Codes
 
 <a href="https://afftrend.com/canva">
   <img src="https://drive.google.com/uc?export=view&id=1BoIG94pLVg-WdJD4qjSUbyOFGP_7O3cu"  alt="">
@@ -172,7 +172,7 @@ Additional discounts and codes can be found on platforms like Capital One Shoppi
 <img src="https://drive.google.com/uc?export=view&id=1blfCEfuCZz6FkpegsgFrF423xrPoJ7ur" alt="Claim Your Discount"> 
 </a>
 
-## Canva alternative
+## Canva Alternatives
 
 | **Tool** | **Key Features** | **Free Plan** | **Best For** | **Platform** |
 | --- | --- | --- | --- | --- |
