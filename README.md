@@ -1,4 +1,4 @@
-# Canva Coupons, Free Trial & Discount Offers 2025
+# Canva Coupons & Deals 2025 (PRO 30 Days FREE Trial)
 
 **Canva** is a **web-based graphic design platform** that allows users to **create visual content** such as social media graphics, presentations, posters, documents, and videos using an intuitive **drag-and-drop interface** and a wide variety of **customizable templates**.
 
