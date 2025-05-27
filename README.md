@@ -156,17 +156,23 @@ Free for verified teachers and students, providing access to educational templat
 
 Eligible nonprofit organizations can apply for free access to Canva Pro features to aid in their missions. 
 
-## 💸 Canva Coupon Codes
+## 💸 Canva Coupon Codes and Special Offers
 
 <a href="https://afftrend.com/canva">
   <img src="https://drive.google.com/uc?export=view&id=1BoIG94pLVg-WdJD4qjSUbyOFGP_7O3cu"  alt="">
 </a>
 
-- **PRINTGIFT15**: 15% off print orders over $40.
-- **E20**: 20% off any order.
-- **MSY**: 20% off your order.
+Finding official Canva coupon codes or promo codes can be a bit of a treasure hunt since the company rarely shares discounts or special offers publicly or through direct coupon campaigns. However, that doesn’t mean you have to miss out on great savings! There are legitimate and safe ways to access Canva discounts and promotions that can help you get more value from this popular design platform.
 
-Additional discounts and codes can be found on platforms like Capital One Shopping and Coupons.com.
+The best place to start is Canva’s own website, where seasonal sales or limited-time promotions sometimes pop up, especially around major holidays or back-to-school periods. Signing up for Canva’s newsletter is another smart move — subscribers often get early access to special offers, product updates, and exclusive promotions directly in their inbox. Following Canva on social media channels like Twitter, Facebook, or Instagram can also keep you in the loop on flash sales or newly launched features that come with discounts.
+
+If you come across affiliate partners or trusted online content creators recommending Canva, they may offer special deals or bonuses that don’t rely on traditional coupon codes. These authorized affiliates provide legitimate ways to save, often bundled with extra resources or tutorials, but without violating Canva’s affiliate policies.
+
+Don’t forget to combine these promotions with Canva’s free trial or demo offers. Taking advantage of a free trial alongside any available discounts can maximize your benefits and help you experience Canva’s premium features risk-free before committing.
+
+Remember, while coupon codes and discounts are exciting, it’s important to avoid unverified sources that claim to offer secret codes. Stick to official and authorized channels to ensure your savings are safe and your Canva experience remains smooth and trustworthy.
+
+By staying informed and using these tips, you can confidently find the best Canva special offers and promotions without any hassle. Happy designing!
 
 <a href="https://afftrend.com/canva"> 
 <img src="https://drive.google.com/uc?export=view&id=1blfCEfuCZz6FkpegsgFrF423xrPoJ7ur" alt="Claim Your Discount"> 
